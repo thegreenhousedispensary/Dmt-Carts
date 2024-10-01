@@ -1,0 +1,1 @@
+Premium quality DMT vape cartridges available, designed for a smooth and potent experience. Each cartridge is compatible with standard vape pens, ensuring convenience and reliability. Made with pure DMT extract, these carts provide an unparalleled journey into consciousness. Ideal for both beginners and experienced users.
